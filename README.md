@@ -1,7 +1,7 @@
 ## Hi I'm kianku 👋
 
 - 🌱 first-year CS undergraduate
-- 🌟 BanG Dream! & maimai lover
+- 🌟 BanG Dream! lover
 - ✨💓 <em>Let's find the kirakira dokidoki moment!!!</em> ✨💓
 ---
 
