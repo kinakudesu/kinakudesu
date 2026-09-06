@@ -1,6 +1,6 @@
-## Hi I'm kianku 👋
+## Hi I'm kinaku 👋
 
-- 🌱 first-year CS undergraduate
+- 🌱 second-year CS undergraduate
 - 🌟 BanG Dream! lover
 - ✨💓 <em>Let's find the kirakira dokidoki moment!!!</em> ✨💓
 ---
