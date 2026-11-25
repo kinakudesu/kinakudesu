@@ -6,7 +6,7 @@
 <br>
 Enjoy creating
 <br>Want to make some games recently.（2026.11）
-<br>Welcome to contact me～
+<br>Welcome to contact me～<br>
 ---
 
 > *单纯な日々がキラキラ!!!*
