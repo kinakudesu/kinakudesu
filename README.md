@@ -3,9 +3,13 @@
 - 🌱 second-year CS undergraduate
 - 🌟 BanG Dream! lover
 - ✨💓 <em>Let's find the kirakira dokidoki moment!!!</em> ✨💓
+Enjoy creating
+Welcome to contact me～
 ---
 
 > *单纯な日々がキラキラ!!!*
+
+
 <!--
 **kinakudesu/kinakudesu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
