@@ -4,7 +4,7 @@
 - 🌟 BanG Dream! lover
 - ✨💓 <em>Let's find the kirakira dokidoki moment!!!</em> ✨💓
 <br>
-<br>Enjoy creating
+Enjoy creating
 <br>Want to make some games recently.（2026.11）
 <br>Welcome to contact me～
 ---
